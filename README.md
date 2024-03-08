@@ -23,7 +23,7 @@ Certifications
 
 ### Email
 
-reachkk2020@gmail.com 
+kumarasamykiruthika@gmail.com 
 
 
 
